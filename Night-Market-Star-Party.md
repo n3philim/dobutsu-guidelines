@@ -12,7 +12,7 @@ Make sure you have:
 If you want to you are welcome to:
 * drop off items for others to catalog or to add items to the Free pile (please check the What to bring section for guidance)
 * pick flowers to craft rare items (blue rose crowns/wreaths, green mum crowns, etc)
-** if you opt to do this please consider making one for your host, and potentially another to share freely
+  * if you opt to do this please consider making one for your host, and potentially another to share freely
 
 ---  
 
