@@ -1,5 +1,4 @@
 ## Grand Fillorian Night Market and Star Party Guidelines
----
 
 #### TL:DR
 
