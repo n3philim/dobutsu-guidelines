@@ -3,6 +3,12 @@
 #### TL:DR
 
 To ensure as many folx can catalog items and also get some star bits please limit visits to 1 (one) hour at most.
+
+**General:**
+* Do not take items from the cataloging space: pick them up, then put them back down.
+* Take items from the **Free!! Take!!** area in moderation; 100+ people may be visiting tonight.
+* Minimize dialog box times, and close them quickly when someone’s trying to join/leave.
+  * Seriously, don't ignore the "please close the window" if you're at Ables.
   
 Make sure you have:   
 * a stable network connection! If possible play docked and use a wired connection to your home network. If you are on WiFi please ensure you are in range of your wireless access point and please do not move about your residence with your Switch.       
